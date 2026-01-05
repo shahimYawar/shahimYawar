@@ -70,8 +70,8 @@ My aim is to become a **financially independent academic** — someone who teach
 
 ## 📫 Connect With Me
 
-📧 Email: (add your email here)  
-🔗 LinkedIn: (add your LinkedIn here)  
+📧 Email: shahimyawar8051@gmail.com  
+🔗 LinkedIn: https://www.linkedin.com/in/md-shahim-yawar/  
 🌐 GitHub: https://github.com/shahimYawar  
 
 ---
